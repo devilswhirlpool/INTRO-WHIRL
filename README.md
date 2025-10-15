@@ -1,2 +1,8 @@
-# INTRO-WHIRL
-devil ; corey ; clef - it/he - queer transmasc ambiam - loserboy oddthing mutt-ostrich-sea otter
+### INTRO-WHIRL
+<br> devil ; corey ; clef 
+<br> it/he - queer transmasc ambiam 
+<br> loserboy oddthing mutt-ostrich-sea otter
+<br>
+<br> autistic w/ anxiety - udd system
+<br>
+<br> extra info under different files :L
